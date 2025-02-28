@@ -1,4 +1,4 @@
-## Senhoras e senhores, obrigado pela visita 🫡
+## Obrigado pela visita 🫡
 
 ## Fomação
 
