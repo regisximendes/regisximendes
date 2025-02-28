@@ -1,6 +1,6 @@
 ## Obrigado pela visita 🫡
 
-## Fomação
+## Formação
 
 ### 🧙🏾‍♂️ Bacharelado em Sistemas de Informação - Fiap
 
